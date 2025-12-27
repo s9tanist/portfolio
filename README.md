@@ -11,6 +11,6 @@ I build engaging and polished Roblox games with attention to detail, combining c
 
 ## Contact
 - Discord: `s9tanist`  
-- Roblox: `[s9tanist](https://www.roblox.com/users/9990814597/profile)`  
+- Roblox: `[s9tanist]`  
 - Email: `s9tanist@gmail.com`  
 
