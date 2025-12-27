@@ -1,6 +1,6 @@
 # Hi, I'm s9tanist 👋
 
-🎮 **Experienced Roblox Developer**  
+ **Experienced Roblox Developer**  
 I build engaging and polished Roblox games with attention to detail, combining creativity with advanced scripting skills.  
 
 ## About Me
